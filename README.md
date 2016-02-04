@@ -13,12 +13,12 @@
 3. Download your favorite Linux ISO as usual, but instead of contributing to the fOSS community from the US of A, upload the torrent file or magnet link to your robot friend in New Bohemia, and let him demonstrate EURope's commitment to SOftware FReedom
 4. delete all your fucking torrent clients. even the one on your anroid phone. Let your slavic friend deal with the swarm instead.
 5. Download your Linux ISO just like any other file using Putty or SFTP or some shit and
-6. 
+6. https://youtu.be/CwAm1amBAg4
 ```
-WELCO
-ME TO
-THE N
-EXT L
-##EVEL
+WELCOM
+E TO T
+HE NEX
+T LEVE
+L
 ```
 
