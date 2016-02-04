@@ -1,9 +1,11 @@
 # crimetime
-how to succeed at criming without really trying
+## how to succeed at criming without really trying
 ![jony ive aces]
 (http://drawception.com/pub/panels/2014/4-30/913Nrr13FZ-1.png)
 >Sam please, he had a family
-- HEY YOu! Sick of being thrown in jail over and over again for believing int **your contitutional freedom to aNIME?**
+> - `Johhny`
+
+## HEY YOu! Sick of being thrown in jail over and over again for believing int **your contitutional freedom to aNIME?**
   - WOrry no more, citizen. Ya boy [JOEY 5 ACES](whitehouse.gov) has just what you need, other than anime, of course
 
 1. GO to [whatbox](whatbox.ca) or some other non-american hosting company and pay these foreign fuckfaces $10-$15 EARTH DOLLARS or BUttcoins or whatever for the monthly rental of YOUR brand new server in the beautiful EU micronation of *New Bohemia."
